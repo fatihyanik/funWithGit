@@ -63,8 +63,10 @@ https://www.obapanelws1.com/hangar/cms/kalkansuntravel.net/icerikgaleri_14_X729u
   6. Broken Mınaret Mosque Kesik Minare - beautiful ruins of an old Roman temple, which eventually was converted into a Christian church and finally a mosque.
     
   7. Hıdırlık Tower Hıdırlık Kulesi - a tower on the edge of the town walls with scenic views of the marina and the harbour.
-   
+  
+  8. Antalya Aquarium - boasts the world's largest tunnel aquarium. 
  
  > *Antalya Tourism Magazine,* [*July 2020*](https://eksisozluk.com/antalya--32778)
 
   **[By Murat Fatih Yanik](https://eksisozluk.com/antalya--32778)**
+  
